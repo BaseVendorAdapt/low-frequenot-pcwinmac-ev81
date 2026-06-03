@@ -1,4 +1,4 @@
-# 
+# Avançado low-frequency trading bot complementos para Mac OS | Exclusivo low-frequency trading bot complementos para PC Windows. Com estratégia de reversão à média e varredura de arbitragem — otimizado para máximo desempenho em cada plataforma.
 
 
 
